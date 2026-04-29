@@ -1,4 +1,4 @@
-
+vip Scripts for jujutsu infinite offers the most advanced jujutsu infinite Script, with silent aim and no cooldown. Perfect for dominating any match.
 
 
 
